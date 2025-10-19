@@ -10,9 +10,8 @@ tt: skyworkkfalls
 <p align="center">
 c+h anytime unless i say so
 <p align="center">
-i really like rosmp minecraft my favorite are newsroblox wondernat tencell zooms and pixelpug pls int with me
+
 <p align="center">
-<img width="400" height="350" src="https://i.pinimg.com/736x/37/27/0e/37270e895be8b79effa9f80f7369b384.jpg">
+<img width="400" height="350" src="https://i.pinimg.com/736x/55/61/07/55610758f0c3c1fb441fe1574e8b5555.jpg">
 </p>
 <p align="center">
-art by selflove00001 on pinteressttt shooooo
